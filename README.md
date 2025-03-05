@@ -1,11 +1,12 @@
-# LadySemi
+# About me
 - Nick : Fem
-- Name : Wanvisa Phumam
+- Name : Fem Gevaria
 - Age : 20
 - Born : 22/05/2005
 - From : Thailand, Bangkok
 - Height : 145 cm (4'9")
 - Weight : now (47.7 KG)
+- Bisexual (But women first)
   
 - CEO of LadySemi (AI Support)
 - Dev of LadySemi
