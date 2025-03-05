@@ -6,7 +6,7 @@
 - From : Thailand, Bangkok
 - Height : 145 cm (4'9")
 - Weight : now (47.7 KG)
-- Bisexual (But women first)
+- I see all genders as human, but I am more interested in women's physical appearance, emotions, and personalities. Finally, I am Sapphic.
   
 - CEO of LadySemi (AI Support)
 - Dev of LadySemi
