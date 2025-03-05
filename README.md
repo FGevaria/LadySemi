@@ -8,8 +8,8 @@
 - Weight : now (47.7 KG)
 - I see all genders as human, but I am more interested in women's physical appearance, emotions, and personalities. Finally, I am Sapphic.
   
-- CEO of LadySemi (AI Support)
-- Dev of LadySemi
+- CEO of FemAI
+- Dev of GFem
 - CEO of LaLoafé (Bread Shop)
 - CEO of LaSeniz (Perfume Shop)
 - CPA
