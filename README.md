@@ -1,5 +1,5 @@
 # About me
-- Nick : Fem
+- Nick : Femmé (You can call me "Fem" if you want)
 - Name : Fem Gevaria
 - Age : 20
 - Born : 22/05/2005
